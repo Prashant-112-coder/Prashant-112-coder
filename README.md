@@ -10,7 +10,7 @@ Email Me 👉 ✉️ Prashantikkalaki416@gmail.com For Collaboration/Project or 
 - 💬 **Ask me about:     Collaboration, Tech Support
 - 📫 **How to reach me:  Prashantikkalaki416@gmail.com
 - 😄 **Pronouns:         Prashant (pacchu)
-- ⚡ **Fun fact:        I Love Tech and Tech Love Me
+- ⚡ **Fun fact:        I Love Tech and Tech Love  Me
 
 
 
